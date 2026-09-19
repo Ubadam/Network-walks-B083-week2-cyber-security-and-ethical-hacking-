@@ -1,3 +1,9 @@
+
+
+https://github.com/user-attachments/assets/e325a3c9-6d75-493a-87ca-ff04f66b6fb9
+
+
+
 # Network-walks-B083-week2-cyber-security-and-ethical-hacking-
 Week 2 of my Cybersecurity & Ethical Hacking internship at Networkwalks is officially in the books, and it was such an exciting one! 
 
